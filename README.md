@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pulkit gaur
 - 👀 I’m interested in programing and data sciece models 
-- 🌱 I’m currently learning Python as my primary language
+- 🌱 I’m currently learning Python as my primary programming language
 - 💞️ I’m looking to collaborate on a company who can help to grow as programer being from a business background which can be preety good
 - 📫 How to reach me @pulkitgaur94@gmail.com
 
