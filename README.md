@@ -5,9 +5,9 @@
 
 - 💬 Ask me about **Any Thing Related to Data Science and Statistical Modeling, if I did get, surely I will find you a way!!!!!!**
 
-- 📫 How to reach me **pulkitgaur94@gmail.com**
+- 📫 How to reach me **pulkitgaur146@gmail.com**
 
-- ⚡ Fun fact **I think I am an Entertaining Person be around 😝**
+- ⚡ Fun fact **I think I am an Entertaining Person to be around 😝**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
